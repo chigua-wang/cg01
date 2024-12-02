@@ -2,9 +2,9 @@
 瓜棚吃瓜官网-瓜棚黑料老司机-瓜棚暗网-瓜棚海角社区-瓜棚吃瓜入口-瓜棚吃瓜基地
 
 ----
-[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg588.com】🌏🔞](https://chigua-wang.github.io/cg01/)
 ----
-[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg51/)
+[🔞🌏点击进入官网【cg589.com】🌏🔞](https://chigua-wang.github.io/cg01/)
 ----
 <h3>【瓜棚团】更新时间：2024年12月3日</h3>
 
